@@ -1,6 +1,6 @@
 ### Max Pays 
 
-I am a postgraduate MSc Statistics student at the Imperial College London, I enjoy food and sport (specifically padel & football). While at Imperial, I am to: 
+I am a postgraduate MSc Statistics student at the Imperial College London, I enjoy food and sport (specifically padel & football). While at Imperial, I am to:
 
 - join a society;
 - have fun;
